@@ -1,3 +1,3 @@
 # copr
-NORA HILDEBRAND 
-NORA Drüüüüüüüüüüüüüüüücccckkkkkkeennnnnn
+ HILDEBRAND 
+
